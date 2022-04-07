@@ -1,1 +1,0 @@
-# NIDphotocafefld47
